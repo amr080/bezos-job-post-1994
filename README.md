@@ -14,7 +14,7 @@ Expect talented, motivated, intense, and interesting co-workers. Must be willing
 
 Your compensation will include meaningful equity ownership.
 
-### Send resume and cover letter to Jeff Bezos:
+**Send resume and cover letter to Jeff Bezos:**
 
 - **Mail:** be...@netcom.com  
 - **Fax:** 206/828-0951  
