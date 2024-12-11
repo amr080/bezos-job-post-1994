@@ -1,4 +1,4 @@
-# Well-capitalized Seattle start-up seeks Unix developers
+## Well-capitalized Seattle start-up seeks Unix developers
 
 **Jeff Bezos**  
 *8/22/94*
