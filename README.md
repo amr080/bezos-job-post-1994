@@ -24,10 +24,9 @@ Your compensation will include meaningful equity ownership.
 &nbsp;&nbsp;&nbsp;&nbsp;10704 N.E. 28th St.  
 &nbsp;&nbsp;&nbsp;&nbsp;Bellevue, WA 98004  
 
----
 
 We are an equal opportunity employer.
 
----
-
+----------------------------------------------------------------------
 > *"It's easier to invent the future than to predict it."* — Alan Kay
+----------------------------------------------------------------------
